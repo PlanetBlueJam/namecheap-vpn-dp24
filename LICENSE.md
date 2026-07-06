@@ -1,4 +1,4 @@
-
+Enhance your Goose VPN experience with rare Goose VPN Module | OpenVPN-support + server-locations, the #1 module. Includes OpenVPN-support and server-locations for a safer and
 
 
 
